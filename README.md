@@ -19,7 +19,7 @@ I wanted to explore GitHub and showcase my learning progress. This repository is
 
 ## 💬 Let's Connect!
 Want to chat or share ideas? Reach out to me here:  
-- 🐦 Twitter: https://twitter.com/iEvangelos  
+- 🌍 [Follow me on X](https://twitter.com/iEvangelos)
 
 ---
 
